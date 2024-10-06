@@ -1,4 +1,4 @@
-👋 Hi there! I'm Ponsubash Raj, a passionate 1st-year college student diving into the exciting world of technology. I thrive on tackling small projects and constantly expanding my skill set to stay ahead in this fast-paced industry.
+👋 Hi there! I'm Ponsubash Raj, a passionate 2nd-year college student diving into the exciting world of technology. I thrive on tackling small projects and constantly expanding my skill set to stay ahead in this fast-paced industry.
 
 🎓 Currently pursuing M.Tech (Integrated) CSE at SSN College of Engineering, I am eager to apply what I learn in the classroom to real-world projects and challenges.
 
